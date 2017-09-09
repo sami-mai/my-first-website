@@ -2,7 +2,7 @@
 
 #### {This is my first website}, {6th Sept.2017}
 
-#### By **{Samirah and Bright}**
+#### By **{Samirah Maison}**
 
 ## Description
 
